@@ -1,4 +1,4 @@
-Kalaimani A/L Kalairasu <br>
+Kalaimani A/L Kalaiarasu <br>
 18DIT24F1036 <br>
 DIT4B<br>
 DIT4B_18DIT24F1036_KALAIMANI
